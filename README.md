@@ -1,0 +1,1 @@
+# Security-Analysis-of-Shoprite-Holdings-Ltd.
